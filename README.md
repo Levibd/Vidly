@@ -10,7 +10,7 @@
 👤 **Levi Dantas**
 
 * Github: [@Levibd](https://github.com/Levibd)
-* LinkedIn: [@Levi Braga](https://linkedin.com/in/Levi Braga)
+* LinkedIn: [@Levi Braga]([https://linkedin.com/in/Levi Braga](https://www.linkedin.com/in/levi-braga-a088a318b/))
 
 ## Show your support
 
